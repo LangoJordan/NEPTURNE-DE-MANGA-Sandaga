@@ -1,0 +1,1 @@
+![Alt text](<Capture d’écran 2023-12-20 à 11.16.46.png>) ![Alt text](<Capture d’écran 2023-12-20 à 11.16.57.png>) ![Alt text](<Capture d’écran 2023-12-20 à 11.17.01.png>) ![Alt text](<Capture d’écran 2023-12-20 à 11.17.05.png>) ![Alt text](<Capture d’écran 2023-12-20 à 11.17.09.png>) ![Alt text](f.PNG) ![Alt text](f2.PNG)
